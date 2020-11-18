@@ -1,0 +1,1 @@
+Boneless, skinless chicken breasts, olive oil,Salt,all-purpose blend of smoked paprika, garlic powder, and black pepper
